@@ -33,6 +33,7 @@ https://www.chaoticanwriter.com
 [Tavern Name Generator](https://www.chaoticanwriter.com/random-name-generators/tavern-name-generator/) <br>
 [Wonderous Shop Name Generator](https://www.chaoticanwriter.com/random-name-generators/fantasy-shop-name-generator/) <br>
 
-
+#### CW Affiliates
+[Paladins Archives](https://www.paladinsarchives.com/)
 
 ## Worldbuilding Resources
