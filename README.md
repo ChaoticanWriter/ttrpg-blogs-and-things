@@ -34,7 +34,7 @@ https://www.chaoticanwriter.com
 [Wonderous Shop Name Generator](https://www.chaoticanwriter.com/random-name-generators/fantasy-shop-name-generator/) <br>
 
 #### CW Affiliates
-[Twinheim Gaming](https://www.twinheim.org/)
+[Twinheim Gaming](https://www.twinheim.org/) <br>
 [Paladins Archives](https://www.paladinsarchives.com/)
 
 
