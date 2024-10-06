@@ -35,7 +35,6 @@ https://www.chaoticanwriter.com
 
 #### CW Affiliates
 [Twinheim Gaming](https://www.twinheim.org/) <br>
-[Paladins Archives](https://www.paladinsarchives.com/)
 
 
 ## Worldbuilding Resources
